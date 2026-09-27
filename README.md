@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center">
+<h4 align="center"
 
-<!--
-**cactusrings/cactusrings** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://i.pinimg.com/1200x/7e/67/f4/7e67f4a3a2da0bd7eca181ee909ddbcf.jpg)
 
-Here are some ideas to get you started:
+  <p align="center">
+  <p align="center">
+<h4 align="center"
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+minecraft¹ 　charlie²
+
+  <p align="center">
+    <p align="center">
+<h4 align="center"
+
+22 🍀  he  /  she
+
+  <p align="center">
+  <h4 align="center"
+
+profic + anti harassment, i block and hide as i see necessary & you should too!
+
+  <p align="center">
